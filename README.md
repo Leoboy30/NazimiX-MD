@@ -43,7 +43,7 @@
 </p>
 
 <p align="center">
-<strong>ＡＬＩＥＮ ＡＬＦＡ－ＭＤ－ＴＥＭＰＬＡＴＥ</strong>
+<strong>N A Z I M I X－ＭＤ－ＴＥＭＰＬＡＴＥ</strong>
 </p>
 
 <p align="center">
